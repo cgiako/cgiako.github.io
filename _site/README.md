@@ -1,1 +1,0 @@
-# cgiako.github.io
